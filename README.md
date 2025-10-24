@@ -1,1 +1,1 @@
-https://mahir966.github.io.protfolio/
+https://mahir966.github.io/portfolio/
